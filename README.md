@@ -1,2 +1,1 @@
 # pikipiki
-kawaii community
